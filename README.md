@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @BERLINe-SS
-- 👀 I’m interested in ... video games, music and medievel folklore
+- 👀 I’m interested in ... video games, WWII , and medievel folklore
 - 🌱 I’m currently learning ... engineering
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... my email kmedo0883@gmail.com
